@@ -1,1 +1,1 @@
-# patikaWEB![patika](patika.PNG)3
+# patikaWEB![patika](patika.jpg)3
